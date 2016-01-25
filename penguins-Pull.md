@@ -12,7 +12,7 @@ Quick how-to:
 | Yes.                     |   
 
 
-Hey this is Danielle from team Hippo
+Hey this is Erik G. from #panda5
 ====================================
 
 Hi there! - thanks for sharing these instructions with the class!
